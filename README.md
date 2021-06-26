@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @mohammedyseen16
 - 👀 I’m interested in Programming
-- 🌱 I’m currently learning HKBK college of Engineering Bangalore
+- 🌱 I’m pursuing my Engineering in HKBK college of Engineering Bangalore
 - 📫 How to reach me contact: yaseen17045@gmail.com
 - My domains hiremeindia.com  and solutiongigs.com
 
